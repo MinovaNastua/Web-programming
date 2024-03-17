@@ -1,4 +1,5 @@
 #Minova Anastasia#
+![](https://sun9-70.userapi.com/impg/xVBz151YZwmy3oTHvkZFpb36JmjJDoCodb0Rpg/AtUriPzFHrU.jpg?size=1620x2160&quality=95&sign=556951e690a8707f81c4e1bb208ed503&type=album)
 ##PROFESSIONAL TITLE
 ***
 ##My Skills
